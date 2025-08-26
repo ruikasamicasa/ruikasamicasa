@@ -6,7 +6,7 @@ _«See you. I just want to love you gently.»_
 <img width="100" height="100" alt="JuFufu01" src="https://github.com/user-attachments/assets/8c8f85c9-b476-4b43-bfaf-6e61f3e3d602" />
 
  
-♡ pjsk, bang dream, lol (star guardians, spirit blossom), valorant, zzz
+♡ pjsk, bang dream, lol (star guardian, spirit blossom), valorant, zzz
 
 ♡ rui kamishiro, tsukasa tenma, kanae, kuzuha, elysia, iso, kokoro tsurumaki, rinko shirokane, akali
        
