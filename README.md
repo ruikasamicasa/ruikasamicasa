@@ -10,6 +10,6 @@ _«See you. I just want to love you gently.»_
 
 ♡ rui kamishiro, tsukasa tenma, kanae, kuzuha, elysia, iso, kokoro tsurumaki, rinko shirokane, reze, lauren iroas
 
-♡ ruikasa, akitoya, akikasa, akirui, ruitoya, emunene, mizuena, haruwise, lighterwise, kaochisa, yukiran, isekko (straight people scare me)
+♡ ruikasa, akitoya, akikasa, akirui, ruitoya, emunene, mizuena, haruwise, lighterwise, kaochisa, yukiran, isekko (straight people scares me)
        
 •[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=i23sjrvne6xvmzmpvmd08vy74&cover_image=true&theme=natemoo-re&show_offline=false&background_color=1c1122&interchange=false&bar_color=ac6fb9&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)•
