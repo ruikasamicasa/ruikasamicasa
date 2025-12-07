@@ -12,8 +12,8 @@ _«See you. I just want to love you gently.»_
 
 ♡ ruikasa, akitoya, akikasa, akirui, ruitoya, emunene, mizuena, haruwise, lighterwise, kaochisa, yukiran, isekko (straight people scares me)
 
-♡ pjsk en: 572574939375484935
+♡ pjsk en: 572574939375484935 (ruikasa fans kisser)
 
-♡ pjsk jp: 535169019734753288
+♡ pjsk jp: 535169019734753288 (tsurui nui)
        
 •[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=i23sjrvne6xvmzmpvmd08vy74&cover_image=true&theme=natemoo-re&show_offline=false&background_color=1c1122&interchange=false&bar_color=ac6fb9&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)•
