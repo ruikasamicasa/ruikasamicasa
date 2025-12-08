@@ -10,7 +10,7 @@ _«See you. I just want to love you gently.»_
 
 ♡ rui kamishiro, tsukasa tenma, kanae, kuzuha, elysia, iso, kokoro tsurumaki, rinko shirokane, reze, lauren iroas
 
-♡ ruikasa, akitoya, akikasa, akirui, ruitoya, emunene, mizuena, haruwise, lighterwise, kaochisa, yukiran, isekko (straight people scares me)
+♡ ruikasa, akitoya, emunene, mizuena, haruwise, lighterwise, kaochisa, yukiran, isekko (straight people scares me)
 
 ♡ pjsk en: 572574939375484935 (ruikasa fans kisser)
 
