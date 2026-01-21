@@ -6,7 +6,6 @@ _«See you. I just want to love you gently.»_
 <img width="100" height="100" alt="JuFufu01" src="https://github.com/user-attachments/assets/8c8f85c9-b476-4b43-bfaf-6e61f3e3d602" />
 
 
-♡ ruikasa, akitoya, emunene, mizuena, haruwise, lighterwise, kaochisa, yukiran, isekko (straight people scares me)
 
 ♡ pjsk en: 572574939375484935 (ruikasa fans kisser)
 
