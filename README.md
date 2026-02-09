@@ -1,3 +1,4 @@
+![](https://komarev.com/ghpvc/?username=ruikasamicasa&label=♡&color=FFBB00)
 
 <img width="750" height="520" alt="tumblr_ad45c4b8c1ab06bacfc37375f0acdee4_c4a3809d_1280" src="https://github.com/user-attachments/assets/fb4f92c8-c186-4f62-bdcc-4f16c364d717" />
 
