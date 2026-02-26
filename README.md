@@ -3,7 +3,7 @@
 ![](https://komarev.com/ghpvc/?username=ruikasamicasa&label=♡&color=cc94e4)
 </div>
 <p align="center">
-  <img width="389" height="362" src="https://files.catbox.moe/oftop1.png">
+  <img width="389" height="362" src="https://files.catbox.moe/uo67jz.webp">
 </p>
 
 </p> <p align="center">
