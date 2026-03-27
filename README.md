@@ -24,7 +24,7 @@ ________________________________________________________________________________
 ♡ pjsk en: 572574939375484935 (ruikasa fans kisser)
 </p>
 <p align="center">
-♡ pjsk jp: 535169019734753288 (tsurui nui)
+♡ pjsk jp: 535169019734753288 (Alphinaud)
 </p>
 <p align="center">
 ♡ FFXIV: Kamishiro Rui (Zalera)
