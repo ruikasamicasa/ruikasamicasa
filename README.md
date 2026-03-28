@@ -21,7 +21,7 @@ ________________________________________________________________________________
 
 
 <p align="center">
-♡ pjsk en: 572574939375484935 (ruikasa fans kisser)
+♡ pjsk en: 572574939375484935 (ffxiv edgy bunboi)
 </p>
 <p align="center">
 ♡ pjsk jp: 535169019734753288 (Alphinaud)
