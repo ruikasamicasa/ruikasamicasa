@@ -27,7 +27,7 @@ ________________________________________________________________________________
 ♡ pjsk jp: 535169019734753288 (Alphinaud)
 </p>
 <p align="center">
-♡ FFXIV: Kamishiro Rui (Zalera)
+♡ FFXIV: Iast Iove (Jenova)
 </p>
 
 <div align="center">
