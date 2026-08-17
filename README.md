@@ -24,10 +24,10 @@ ________________________________________________________________________________
 ♡ pjsk en: 572574939375484935 (ffxiv edgy bunboi)
 </p>
 <p align="center">
-♡ pjsk jp: 535169019734753288 (Alphinaud)
+♡ FFXIV: Iast Iove (Jenova)
 </p>
 <p align="center">
-♡ FFXIV: Iast Iove (Jenova)
+♡ adiós pjsk hola dmmd
 </p>
 
 <p align="center">
